@@ -22,7 +22,7 @@
 - ⚠️ <b>мιѕтαкєѕ нαρρєи</b> 🤷‍♂️
 
 
-[![Generic badge](https://img.shields.io/badge/ForㅤMo꒦꒐ꏂꇙ..ㅤping@-Anonymous-RED.svg)](https://telegram.dog/BeyTG) 
+[![Generic badge](https://img.shields.io/badge/ForㅤMOVIES/SERIES..ㅤping@-Anonymous-RED.svg)](https://telegram.dog/BeyTG) 
 
 
 ### Connect with me:
