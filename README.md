@@ -3,7 +3,7 @@
 [![Generic badge](https://img.shields.io/badge/REACHME-@-<COLOR>.svg)](https://github.com/Ghostmailer) [![telegram badge](https://img.shields.io/badge/Anonymous-30302f?style=flat&logo=telegram)](https://telegram.dog/BeyTG)  [![Web](https://img.shields.io/badge/WEB/TVSERIES@-DEVBOTSS-RED.svg)](https://telegram.dog/DEV_BOTSS/) [![Website shields.io](https://img.shields.io/website-up-down-green-red/http/shields.io.svg)](https://telegram.dog/BeyTG)  ![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https://github.com/Ghostmailer/) [![Generic badge](https://img.shields.io/badge/AnyㅤDσυႦƚʂ..ㅤping@-InFoTelGroup-RED.svg)](https://telegram.dog/InFoTelGroup)
 
 - 🌱 I’m currently learning Python
-- 💬 Movie Buff, Globetrotter, Foodie, Soccer Fan, Dog lover, Techie, Naturist, Humanist, Agnostic.  
+- 💬 Traveller, Globetrotter,Dog lover, Techie, Sailor, Humanist.  
 - 📫 How to reach me: Check down below 👇👇
 - ❄️ I Love To Spend My Time In <img  src="https://cdn.jsdelivr.net/npm/simple-icons@3.5.0/icons/telegram.svg" width="20px" />   <img src ="https://cdn.jsdelivr.net/npm/simple-icons@3.5.0/icons/github.svg" width="20px" />   <img src="https://cdn.jsdelivr.net/npm/simple-icons@3.5.0/icons/heroku.svg" width="20px" />  <img src="https://cdn.jsdelivr.net/npm/simple-icons@3.5.0/icons/postgresql.svg" width="20px" />
 - ⚡ Quote: “I’m not a teacher: only a fellow traveler of whom you asked the way. I pointed ahead – ahead of myself as well as you.” — George Bernard Shaw
